@@ -1,2 +1,2 @@
-# ***IEEE Costa Rica Section Chapter**
+# **IEEE Costa Rica Section Chapter**
 
