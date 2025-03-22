@@ -1,1 +1,2 @@
-# .github
+# ***IEEE Costa Rica Section Chapter**
+
